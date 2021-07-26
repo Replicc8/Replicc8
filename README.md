@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Replicc8
+- 👀 I’m not 
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me replicvte1@gmail.com
